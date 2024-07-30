@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on new exiciting projects
 - 📫 How to reach me tac8956@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: everyone thinks that i'm just too good and perfect but in reality i'm just an average guy
+- ⚡ Fun fact: I can actually beatbox
 
 <!---
 Lordtushar17/Lordtushar17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
